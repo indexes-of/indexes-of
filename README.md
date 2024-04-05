@@ -1,1 +1,3 @@
-- reyhan jr
+- This reyhan jr as known Organization-owner and Internet-owner
+- Explore and experience more about me from link https://about.me/organization_owner and https://gravatar.com/orgsowner morr than can recognize by himself
+
